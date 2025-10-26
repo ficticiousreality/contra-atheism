@@ -1,7 +1,6 @@
-# contra-atheism[Abu Unayzah’s Concise Notes on Atheism.md](https://github.com/user-attachments/files/23151512/Abu.Unayzah.s.Concise.Notes.on.Atheism.md)
-**Unayzah’s Atheological Theory Collapse**
+# **Unayzah’s Atheological Theory Collapse**
 
-Written by Abu Unayzah Tasmim Akon
+## Written by Abu Unayzah Tasmim Akon
 
 # **Table of Contents** {#table-of-contents}
 
